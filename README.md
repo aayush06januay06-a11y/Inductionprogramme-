@@ -48,7 +48,7 @@ Harleen Kaur
 
 
 
-Fifth speaker:- have a strong mindset about completing your goal and God/ universe will guide the way 
+### Fifth speaker:- have a strong mindset about completing your goal and God/ universe will guide the way 
 
 
 Dr shehejpal ( principal):- role of engineers in society as society makers , about work of  artificial intelligence in industries , increasing competition in cse,it branch and adding value to ourselves to be able to compete , 
