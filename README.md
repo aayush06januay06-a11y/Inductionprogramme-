@@ -11,3 +11,6 @@ Branch:- CSE(A)
 ## 8:30- 9:30 AM :- *Visit to Gurudwara Shahib*
 our whole batch started our day at gurudwara listening to shabad kirtan, praying to the God.
 
+## 9:30 - 10:00 AM :- *Refreshments* 
+After visiting the gurudwara all the students were given Refreshments to recharge themselves 
+
