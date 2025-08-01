@@ -35,10 +35,11 @@ Harsimran
 
 
 
-Second speaker(Dr Harpreet Kaur mam):- importance of 4 years of college in future life , role of applied science branch as bridge between school academics and college academics 
+### **Second speaker(Dr Harpreet Kaur mam)**:-
+  Importance of 4 years of college in future life , role of applied science branch as bridge between school academics and college academics 
 
 
-Dr. Akshay Girdhar 
+### **Third speaker(Dr. Akshay Girdhar sir)**
 Importance and role of extracurricular activities in building a well disciplined life ( life beyond engineering)
 
 
