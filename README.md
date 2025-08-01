@@ -36,7 +36,7 @@ Harsimran
 **Second speaker(Dr Harpreet Kaur mam)**:- Importance of 4 years of college in future life , role of applied science branch as bridge between school academics and college academics 
 
 
-**Third speaker(Dr. Akshay Girdhar sir)**:- Importance and role of extracurricular activities in building a well disciplined life ( life beyond engineering)
+**Third speaker(Dr. Akshay Girdhar sir)**:- Importance and role of extracurricular activities in building a well disciplined life ( life beyond engineering).
 
 
 
@@ -44,7 +44,7 @@ Harleen Kaur
 
 
 
-**Fifth speaker**:- have a strong mindset about completing your goal and God/ universe will guide the way 
+**Fifth speaker**:- Have a strong mindset about completing your goal and God/ universe will guide the way.
 
 
 Dr shehejpal ( principal):- role of engineers in society as society makers , about work of  artificial intelligence in industries , increasing competition in cse,it branch and adding value to ourselves to be able to compete , 
