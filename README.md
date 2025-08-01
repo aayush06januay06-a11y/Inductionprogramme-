@@ -30,11 +30,11 @@ During the program we all were given knowledge about many different things, from
 Harsimran 
 
 
-First speaker:- About GNDEC’s establishment, achivement, role in society and students life , campus, facilities , etc 
+### **First speaker**:- About GNDEC’s establishment, achivement, role in society and students life , campus, facilities , etc 
 
 
-Dr Harpreet Kaur mam
-Second speaker:- importance of 4 years of college in future life , role of applied science branch as bridge between school academics and college academics 
+
+Second speaker(Dr Harpreet Kaur mam):- importance of 4 years of college in future life , role of applied science branch as bridge between school academics and college academics 
 
 
 Dr. Akshay Girdhar 
