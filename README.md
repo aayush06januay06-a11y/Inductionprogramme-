@@ -30,7 +30,8 @@ During the program we all were given knowledge about many different things, from
 Harsimran 
 
 
-### **First speaker**:- About GNDEC’s establishment, achivement, role in society and students life , campus, facilities , etc 
+### **First speaker**:- 
+ About GNDEC’s establishment, achivement, role in society and students life , campus, facilities , etc 
 
 
 
