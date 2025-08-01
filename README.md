@@ -47,7 +47,7 @@ Harleen Kaur
 **Fifth speaker**:- Have a strong mindset about completing your goal and God/universe will guide the way.
 
 
-** Fifth speaker (Dr shehejpal)**:- He told us about role of engineers in society as society makers,gave insights about work of  artificial intelligence in industries ,about increasing competition in cse,it branch and that we should add value to ourselves to be able to compete in this increasing competition.
+**Fifth speaker (Dr shehejpal)**:- He told us about role of engineers in society as society makers,gave insights about work of  artificial intelligence in industries ,about increasing competition in cse,it branch and that we should add value to ourselves to be able to compete in this increasing competition.
 
 
 
@@ -55,7 +55,7 @@ Harleen Kaur
 
 **Seventh speaker(Dr Kulwinder Singh maan)**:-He told that Students shouldn't have doubt about IT branch as there's no difference between CS and IT and about many more things related to CS and IT.
 
-Ashok sighla sir( financial adviser) ;- how to manage fees , about educational loan , and financial tips 
+**Eighth speaker(Ashok sighla sir)** :- He how to manage fees , about educational loan , and financial tips 
 
 
 Mr. Kesh kumar ( Deputy commissioner):- Excell in your own field to the top
