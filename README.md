@@ -40,8 +40,7 @@ Harsimran
 
 
 
-Harleen Kaur 
-
+**Fourth speaker(Harleen Kaur)**:- She welcomed the new batch of CS/IT students with enthusiasm. She told about the value of academics, activities, discipline and taught us how to maintain a well balanced life.
 
 
 **Fifth speaker**:- Have a strong mindset about completing your goal and God/universe will guide the way.
@@ -50,14 +49,18 @@ Harleen Kaur
 **Fifth speaker (Dr shehejpal)**:- He told us about role of engineers in society as society makers,gave insights about work of  artificial intelligence in industries ,about increasing competition in cse,it branch and that we should add value to ourselves to be able to compete in this increasing competition.
 
 
-
 **Sixth speaker(Sri Ravindar garg)** :- He warned us about not geting involved in wrong habits and do hard work throughout the college life. Remember to pray daily to the God.
+
 
 **Seventh speaker(Dr Kulwinder Singh maan)**:-He told that Students shouldn't have doubt about IT branch as there's no difference between CS and IT and about many more things related to CS and IT.
 
-**Eighth speaker(Ashok sighla sir)** :- He how to manage fees , about educational loan , and financial tips 
+
+**Eighth speaker(Ashok sighla sir)** :- He told us how to manage fees , benifits of educational loan ,how to get an educational loan and gave us financial tips 
 
 
-Mr. Kesh kumar ( Deputy commissioner):- Excell in your own field to the top
+**Nineth speaker(Mr. Kesh kumar)**:- He gave us motivation to Excell in your own field to the top.
+
+
+**The overall induction session was very inspiring and insightful**
 
 
