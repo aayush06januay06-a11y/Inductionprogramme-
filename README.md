@@ -61,6 +61,6 @@ Harsimran
 **Nineth speaker(Mr. Kesh kumar)**:- He gave us motivation to Excell in your own field to the top.
 
 
-**The overall induction session was very inspiring and insightful**
+**The overall induction session was very inspiring and insightful, the session gave us valuable insights about college life personal growth, etc**
 
 
