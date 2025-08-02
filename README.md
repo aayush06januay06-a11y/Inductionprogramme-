@@ -65,6 +65,19 @@ During the program we all were given knowledge about many different things, from
 ## 3PM - 4PM:- Departmental visit 
 During the departmental visit all the students were shown their respective department buildings, classroom. We all were greeted warmly by our teachers, HoD, mentor and T&P cell head.After that the whole class was taken to show their computer labs , library, etc.
 
-#DAY 2 ( *31 July 2025* )
+# DAY 2 ( *31 July 2025* )
+
+## 9:30 AM - 1:00 PM:- *Pro efficiency test of english and mathematics*
+On the very first day of our college we were welcomed with two pro efficiency tests of mathematics and English.
+
+## 1:00 PM - 4:00 PM :- After the test we had an interesting session at the auditorium which helped us gaining various types of knowledge.
+
+**First speaker(Buddy4study group)**:- The team of Buddy4study came to tell us about the scholarship opportunities that is available for all the students of Ludhiana who are in need or has any achievements. It was great session as it can provide a great help to those in need. They also showed us how to fill the registration form,etc.
+
+
+
+
+
+
 
 
