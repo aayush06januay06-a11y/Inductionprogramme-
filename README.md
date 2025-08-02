@@ -63,6 +63,8 @@ During the program we all were given knowledge about many different things, from
 **The overall induction session was very inspiring and insightful, the session gave us valuable insights about college life personal growth, etc**
 
 ## 3PM - 4PM:- Departmental visit 
-During the departmental visit all the students were shown their respective department buildings, classroom. We all were greeted warmly by our teachers, HoD, mentor ,T&P cell head and 
+During the departmental visit all the students were shown their respective department buildings, classroom. We all were greeted warmly by our teachers, HoD, mentor and T&P cell head.After that the whole class was taken to show their computer labs , library, etc.
+
+#DAY 2 ( *31 July 2025* )
 
 
