@@ -19,7 +19,7 @@ our whole batch started our day at gurudwara listening to shabad kirtan, praying
 ## 9:30 - 10:00 AM :- *Refreshments* 
 After visiting the gurudwara all the students were given Refreshments to recharge themselves 
 
-## 10:00 - 3:00 AM :- *Induction program at the auditorium*
+## 10:00AM - 3:00 PM :- *Induction program at the auditorium*
 
 
 During the program we all were given knowledge about many different things, from history of the college to how we should spend our next four years in college by different speakers.
@@ -27,7 +27,6 @@ During the program we all were given knowledge about many different things, from
 *An extract of what is told by the speaker is as follows*
 
 
-Harsimran 
 
 
 **First speaker**:-About GNDEC’s establishment, achivement, role in society and students life , campus, facilities , etc 
@@ -62,5 +61,8 @@ Harsimran
 
 
 **The overall induction session was very inspiring and insightful, the session gave us valuable insights about college life personal growth, etc**
+
+## 3PM - 4PM:- Departmental visit 
+During the departmental visit all the students were shown their respective department buildings, classroom. We all were 
 
 
