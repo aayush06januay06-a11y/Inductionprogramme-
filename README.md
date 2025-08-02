@@ -75,6 +75,10 @@ After the test we had an interesting session at the auditorium which helped us g
 
 **First speaker(Buddy4study group)**:- The team of Buddy4study came to tell us about the scholarship opportunities that is available for all the students of Ludhiana who are in need or has any achievements. It was great session as it can provide a great help to those in need. They also showed us how to fill the registration form,etc.
 
+**Second speaker(Dr. Arashdeep Singh)**:- 
+He gave an very informative lecture on different types of food present for us and among which how to choose which one is healthy and which one is not. 
+
+**Third speaker**:- Our senior took an introductory session about GitHub and its use and how to use it.
 
 
 
