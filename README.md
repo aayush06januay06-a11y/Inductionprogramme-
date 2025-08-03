@@ -11,7 +11,7 @@ Father's name:- Kaushal Kishore Choudhary
 Branch:- CSE(A)
 
 
-# DAY 1 (*30 July 2025*)
+# DAY 1 (*31 July 2025*)
 
 ## 8:30- 9:30 AM :- *Visit to Gurudwara Shahib*
 our whole batch started our day at gurudwara listening to shabad kirtan, praying to the God.
@@ -65,7 +65,7 @@ During the program we all were given knowledge about many different things, from
 ## 3PM - 4PM:- Departmental visit 
 During the departmental visit all the students were shown their respective department buildings, classroom. We all were greeted warmly by our teachers, HoD, mentor and T&P cell head.After that the whole class was taken to show their computer labs , library, etc.
 
-# DAY 2 ( *31 July 2025* )
+# DAY 2 ( *1 August 2025* )
 
 ## 9:30 AM - 1:00 PM:- *Pro efficiency test of english and mathematics*
 On the very first day of our college we were welcomed with two pro efficiency tests of mathematics and English.
@@ -78,7 +78,14 @@ After the test we had an interesting session at the auditorium which helped us g
 **Second speaker(Dr. Arashdeep Singh)**:- 
 He gave an very informative lecture on different types of food present for us and among which how to choose which one is healthy and which one is not. 
 
-**Third speaker**:- Our senior took an introductory session about GitHub and its use and how to use it.
+And after that our senior took an introductory session about GitHub and its use and how to use it.
+
+# DAY 3 (*2 August 2025*)
+
+**Our third day of induction session started with a wonderful session by Dr. Jaswin Singh sir.** He told us about various intresting things about mathmatics and science and also showed us some mathmatical trick, after that he told about God and the role of God in our life. He concluded the session with an interesting science experiment.
+
+**Then we had an interesting lecture of by Dr. Priya darshani mam.** She showed us the real meaning of happiness and satisfaction and told us how we all can let go the materialistic happiness and move towards real happiness.
+
 
 
 
