@@ -82,7 +82,7 @@ And after that our senior took an introductory session about GitHub and its use 
 
 # DAY 3 (*2 August 2025*)
 
-**Our third day of induction session started with a wonderful session by Dr. Jaswin Singh sir.** He told us about various intresting things about mathmatics and science and also showed us some mathmatical trick, after that he told about God and the role of God in our life. He concluded the session with an interesting science experiment.
+**Our third day of induction session started with a wonderful session by Dr. Jaswinder Singh sir.** He told us about various intresting things about mathmatics and science and also showed us some mathmatical trick, after that he told about God and the role of God in our life. He concluded the session with an interesting science experiment.
 
 **Then we had an interesting lecture of by Dr. Priya darshani mam.** She showed us the real meaning of happiness and satisfaction and told us how we all can let go the materialistic happiness and move towards real happiness.
 
