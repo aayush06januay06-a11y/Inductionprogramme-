@@ -87,6 +87,15 @@ And after that our senior took an introductory session about GitHub and its use 
 **Then we had an interesting lecture of by Dr. Priya darshani mam.** She showed us the real meaning of happiness and satisfaction and told us how we all can let go the materialistic happiness and move towards real happiness.
 
 
+# DAY 4
+
+**A wonderful lecture has been started by Dr. Priyadarshni maam on universal Human value and  importance of life.**
+She taught us the lesson of how to develop right understanding, Relationship and Physical activity. 
+
+**Interactive session by Causmic Club**
+In this club we have to explain by our seniors  explained that there are the lots of talent,personal development ,self confidence to develop their skills for personal development.
+
+
 
 
 
